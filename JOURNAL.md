@@ -1,1 +1,1 @@
-
+[10/23/2025 8:30pm]: I picked my song and installed Chromapper! The song I chose is Ships Don't Lie by Zakia, a song I made while I was at Shipwrecked. I also downloaded it from Youtube and converted it to the .ogg file.
