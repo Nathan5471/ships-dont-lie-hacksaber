@@ -1,1 +1,2 @@
 [10/23/2025 8:30pm]: I picked my song and installed Chromapper! The song I chose is Ships Don't Lie by Zakia, a song I made while I was at Shipwrecked. I also downloaded it from Youtube and converted it to the .ogg file.
+[10/23/2025 8:42pm]: I think I am making some great progress. When I opened up the Chromapper it confused me since it said I need a path to installation. I found a question at the top right which told me how to create a folder for with the needed subfolders. I also installed and setup Arrow Vortex and uploaded my song.
